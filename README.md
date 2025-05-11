@@ -1,1 +1,1 @@
-suneo.co
+Copyright 2025
